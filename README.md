@@ -7,3 +7,4 @@ It is the first Linux distro ever to be named after a fully new species of cat!
 
 Named after the Tilcayo cat.
 
+Established on October third, 2026 (furst!)
